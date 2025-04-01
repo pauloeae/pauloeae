@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pauloeae
 - 👀 I’m interested in part of projects
-- 🌱 I’m currently learning and Studying systems analysis and development 2nd semester
+- 🌱 I’m currently learning and Studying systems analysis and development 3nd semester
 - 💞️ I’m looking to collaborate on projects and teamwork and I'm starting to do solo projects
 - 📫 How to reach me by email: paulomssanto@gmail.com
 - 😄 Pronouns: Paulo
